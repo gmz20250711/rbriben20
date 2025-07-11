@@ -25,4 +25,4 @@
 
 结语  
 选择安全、可靠的日本AV资源平台非常重要，它能够保证你的观看体验既安全又愉快。通过这些平台，用户可以轻松获取高清影片，并享受流畅、舒适的观影体验。  
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link](https://github.com/gmz20250711/rbriben20 )</span>
